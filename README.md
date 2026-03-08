@@ -1,4 +1,4 @@
-# 24kGoldn – Mood (Official Video)
+# 24kGoldn – Mood（feat. iann dior）
 
 > **歌詞登録ステータス：同期歌詞あり**
 
